@@ -1,2 +1,2 @@
 # soul-mate
-Lost in study wasting away
+You can't get out of studying
